@@ -1,2 +1,3 @@
 # JustAI
-He is a Unbelievable AI😈.
+Who is he?
+Justin, he is a Unbelievable AI😈.
